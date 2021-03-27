@@ -1,0 +1,1 @@
+- My favorite travel experiences were during the summer of my junior year at CU Boulder. I had the amazing opportunity to attend two separate study abroad programs, one in China, and one in London. I will have lifetime memories from these trips!
